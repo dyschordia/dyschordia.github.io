@@ -8,4 +8,3 @@ Hello! This is my area to write various content on a variety of topics. Some top
  
  ## An interesting list of links once I've created them
  
- [A map of content](dyschordia.github.io/MOC)

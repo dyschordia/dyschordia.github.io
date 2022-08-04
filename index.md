@@ -10,3 +10,4 @@ Hello! This is my area to write various content on a variety of topics. Some top
  
  This is where a list of writings will be
 
+[List of writings](https://github.com/dyschordia/dyschordia.github.io/blob/62c4d5f926f7421636d3dcb0684da0b20c947afb/Writings.md)

@@ -1,5 +1,5 @@
 # Home
-Hello! This is my area to write various content on a variety of topics. Some topics I may write on include: queer history, black history, magick, and the way all of these things impact and shape the world around us. I hope you enjoy.
+Hello! This is my area to write various content on a variety of topics. Some topics I may write on include: queer history, black history, magick, and music. I'll write about the way all these different areas impact and effect life. I hope you enjoy.
 
 ## About Me
  

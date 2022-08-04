@@ -1,4 +1,3 @@
-remote_theme: cotes2020/jekyll-theme-chirpy
 title: Dyskordia Velour Writing Desk of Chaos
 description: Dancing on the Edge
 plugins:
@@ -6,5 +5,4 @@ plugins:
 relative_links:
   enabled: true
   collections: true
-
 theme: jekyll-theme-minimal

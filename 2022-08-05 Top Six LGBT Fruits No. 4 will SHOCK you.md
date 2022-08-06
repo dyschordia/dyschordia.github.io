@@ -43,7 +43,6 @@ Watermelon, a fruit that’s dearly loved in any season. A true representative o
 ![Grapes are turning the frogs gay](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Red%20Grape.jpeg "Red Grapes are Turning the Frogs Gay!")
 Unlike red apples,  red grapes show a healthy pride within themselves. Red grapes serve as the trans men of the fruit community. (Like pa grape from veggie tales but red) Grapes in general are the most produced fruit by tons.[^6] 
 
-
 ## Bibliography
 
 [^1]:  “Cherry Facts, Statistics, and Trivia.” *Northwest Cherry Growers.* https://nwcherries.com/cherry-facts/information

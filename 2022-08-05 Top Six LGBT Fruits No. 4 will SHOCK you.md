@@ -1,6 +1,7 @@
 [Want to See other Writings](https://github.com/dyschordia/dyschordia.github.io/blob/f0bbb6146733b57bd074beb01c784365836f0395/Writings.md)
 
 # Top Six LGBT+ Fruit (No.4 will SHOCK you)
+
 *by Dyskordia*
 
 **Published: 2022-08-05**
@@ -8,19 +9,23 @@
 It will come as a shock to no one that fruit is a little. . . *fruity* (much like italics are). It gives us the nutrition needed to decrease moral fiber and increase  nutritional fiber (for sodomy). Here are the top nine fruits to show off your LGBT+ pride when you're marching against family values, khaki pants, and oppression.
 
 ## Cherries
+
 ![Twinky Cherries](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Cherries.jpeg "Twinky Cherries")
 Cherries are the  twinks of the fruit community. A classic go-to fruit for a hot summer day.  A sugary snack sure to give you the energy needed to destroy family values.  It was illegal to serve ice cream on cherry pie in Kansas at one point.  [^1]  
 
 ## Blueberries
+
 ![Blueberries, the strong elder of the fruit community](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Blueberries.jpeg "The strong elder of the fruit community")
 Blueberries are the trustworthy older lesbian of the fruit community.  Blueberries have been eaten for longer than 13,000 years. [^2]  She's here, queer, and ready to remind you of your history.  As one of very few foods that are blue in color, she shows you how to be unashamed of the aspects that make you unique.
 
 ## Mangoes
+
 Mangoes are the trans women of the fruit community; sweet, popular, and here to stay. 
 ![Beautiful Trans Fruit](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Mango.jpeg "Iconic Trans Fruit")
 The mango was also the inspiration for the invention of the paisley pattern in India.[^3] Can a fruit be anymore queer than that?
 
 ## Red Delicious Apples
+
 ![The persistent but looked down upon apple](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Apple.jpeg "The persistent albeit looked down upon apple")
 A shocking twist I know. But Red Delicious is also queer. Equally surprising as homophobic  men who end up being gay. These apples are here…whether they like it or not. Red apples have a starting history of persistence even in their origins.[^4] 
 
@@ -29,10 +34,12 @@ A shocking twist I know. But Red Delicious is also queer. Equally surprising as 
 Just like the hardy red delicious, homophobic men who are gay will not be able to root out that which they hate in themselves. (And it’d be really nice if they stopped making life harder for the rest of us)
 
 ## Watermelon
+
 ![Bisexual Watermelon Unite](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Watermelon.jpeg "Bisexual Watermelon UNITE")
 Watermelon, a fruit that’s dearly loved in any season. A true representative of bisexual men and women. It’s good in both sweet *and* savoury dishes. How scandalously *fruity*.  Not only are they present in a variety of dishes but the earliest watermelon harvest ever recorded was 5000 years ago in Egypt! [^5] 
 
 ## Red Grapes
+
 ![Grapes are turning the frogs gay](https://github.com/dyschordia/dyschordia.github.io/blob/b802c1e8d94755357d90e9dc62ee1f8d55bb95ef/Assets/20220805%20Red%20Grape.jpeg "Red Grapes are Turning the Frogs Gay!")
 Unlike red apples,  red grapes show a healthy pride within themselves. Red grapes serve as the trans men of the fruit community. (Like pa grape from veggie tales but red) Grapes in general are the most produced fruit by tons.[^6] 
 

@@ -17,9 +17,7 @@ Mangoes are the trans women of the fruit community; sweet, popular, and here to 
 ## Red Delicious Apples
 A shocking twist I know. But Red Delicious is also queer. Equally surprising as homophobic  men who end up being gay. These apples are here…whether they like it or not. Red apples have a starting history of persistence even in their origins.[^4] 
 
-	"Jesse Hiatt was a Quaker farmer who lived in a log cabin with his family of 12 in the late nineteenth century. He and his family planted an orchard on their farm, and eventually a chance seedling grew between the rows. Jesse Hiatt tried to chop down the seedling three years in a row. The tree kept growing back, so he gave up and let the tree grow.
-	
-	Ten years later, the apple bore fruit. The bright red and yellow fruits were sweet and crisp, and Jesse Hiatt and his family were delighted with the fruit. They brought the apples to fairs and fruit shows for years. Eventually, the Stark Brothers Nursery recognized the apple’s potential and bought the variety in the 1890s, naming it Red Delicious." 
+> "Jesse Hiatt was a Quaker farmer who lived in a log cabin with his family of 12 in the late nineteenth century. He and his family planted an orchard on their farm, and eventually a chance seedling grew between the rows. Jesse Hiatt tried to chop down the seedling three years in a row. The tree kept growing back, so he gave up and let the tree grow. Ten years later, the apple bore fruit. The bright red and yellow fruits were sweet and crisp, and Jesse Hiatt and his family were delighted with the fruit. They brought the apples to fairs and fruit shows for years. Eventually, the Stark Brothers Nursery recognized the apple’s potential and bought the variety in the 1890s, naming it Red Delicious." 
 
 Just like the hardy red delicious, homophobic men who are gay will not be able to root out that which they hate in themselves. (And it’d be really nice if they stopped making life harder for the rest of us)
 

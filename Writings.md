@@ -4,4 +4,5 @@
 A list of writings done on here. 
 
 
-[Top Six LGBT Fruits! No. 4 Will SHOCK You](20220805.md)
+[Top Six LGBT Fruits! No. 4 Will SHOCK You](Posts/20220805.md)
+
